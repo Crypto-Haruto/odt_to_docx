@@ -12,5 +12,7 @@ Let me know on my YouTube Channel or in my Discord server if y'all want me to ma
 
 # Links
 Discord: https://discord.gg/Z3mmQN3x2P
+<br>
 YouTube: https://youtube.com/@harutoplayzofficial
+<br>
 Instagram: https://www.instagram.com/harutoplayzofficial/
